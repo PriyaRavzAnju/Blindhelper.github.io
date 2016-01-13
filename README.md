@@ -1,1 +1,0 @@
-# Blindhelper.github.io
